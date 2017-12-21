@@ -1,1 +1,1 @@
-# Democratize-AI---Winter-2017
+# Democratize AI - Winter 2017
